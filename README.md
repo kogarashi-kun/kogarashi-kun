@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kogarashi-kun
+- 👀 I’m interested in cybersecurity and automating repetitive tasks
